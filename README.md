@@ -1,4 +1,4 @@
-July 2014 Notes
+August 2014 Notes
 ================
 
-Notes for the 2014 July Meetup
+Notes for the 2014 August Meetup
